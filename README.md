@@ -1,0 +1,2 @@
+- Highly motivated, versatile, and solution-oriented computer scientist. 
+- Passionate about information technology, blockchain, hashgraph, and communciation networks.
